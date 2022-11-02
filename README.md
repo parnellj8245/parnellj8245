@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @parnellj8245
+- 🌱 I’m currently majoring in Applied Mathematics and Computer Science at the University of Wisconsin-Stout
+- 📫 You can reach me by emailing: parnelljakob109@gmail.com
